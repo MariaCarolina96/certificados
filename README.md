@@ -1,2 +1,2 @@
 #  CERTIFICADOS
-Certificados dos meus Cursos e Bootcamp
+Certificados dos meus Eventos, Cursos e Bootcamp
